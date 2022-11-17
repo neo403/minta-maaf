@@ -6,4 +6,6 @@ bila ada salah maaf kan
 aku takut sebelum aku mintak maaf sudah tiada 
 walaupun bila ad salah di Cyber (online) 
 tapi rasa sakit nya nyata🙂
+
+Namun kata maafku di maafkan berbentuk wujud tapi tydack dengan hati mu
 ```
